@@ -1,2 +1,0 @@
-# guofeng.github.io
-wqeqw
